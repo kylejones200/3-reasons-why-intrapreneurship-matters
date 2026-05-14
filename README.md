@@ -1,7 +1,7 @@
 # 3 reasons why intrapreneurship matters
 
-**Published:** 2022-09-15
-**Medium:** [https://medium.com/@kyle-t-jones/3-reasons-why-intrapreneurship-matters-75c1237ea507](https://medium.com/@kyle-t-jones/3-reasons-why-intrapreneurship-matters-75c1237ea507)
+Published: 2022-09-15
+Medium: [https://medium.com/@kyle-t-jones/3-reasons-why-intrapreneurship-matters-75c1237ea507](https://medium.com/@kyle-t-jones/3-reasons-why-intrapreneurship-matters-75c1237ea507)
 
 ## About
 
